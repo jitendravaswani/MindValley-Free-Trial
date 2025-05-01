@@ -1,4 +1,4 @@
-# MindValley-Free-Trial
+# MindValley-Free-Trial: Get 15 Days To Explore
 
 Want to try MindValley? It’s a platform with courses on personal growth, mindfulness, and success. 
 
